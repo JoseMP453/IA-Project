@@ -1,3 +1,5 @@
 # IA-Project
 
-SDFKSDFFD
+CODIGO PROPIEDAD DE : 
+  -Juan Manuel Neyra Perez
+  -José Miguel Peña Rivera
